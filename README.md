@@ -16,4 +16,4 @@
 
 📫 How to Reach Me:
 - Email: thami.kraut@gmail.com
-- LinkedIn: linkedin.com/in/thamires-kraut/
+- LinkedIn: www.linkedin.com/thamires-kraut
