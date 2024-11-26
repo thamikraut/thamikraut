@@ -1,5 +1,4 @@
 👨‍💻 Who I Am:
-- She/Her
 - A lifelong learner constantly expanding my skills.
 - A problem-solver turning ideas into code.
 - A team player who values collaboration.
